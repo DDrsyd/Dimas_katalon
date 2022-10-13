@@ -1,0 +1,1 @@
+[link ke Gdoc Section 12](https://docs.google.com/document/d/1Cfdv6RKCHUni19kNQuaJ6YQUgXqD-w1efflB7gz_uGw/edit?usp=sharing)
